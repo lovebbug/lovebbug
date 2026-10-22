@@ -1,4 +1,2 @@
 # turn-it-up
-hai hello !! i'm lilli / boombox also works
-ㅤ⸝⸝ >_< cuddles r very encouraged !
-usually chilling, ur free 2 wsp / int ^w^ ♪
+<img width="613" height="143" alt="image" src="https://github.com/user-attachments/assets/6d0171dc-a769-4ca9-81a6-836b4edb76b3" />
