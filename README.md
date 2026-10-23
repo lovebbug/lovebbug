@@ -1,4 +1,5 @@
-# ꒰ turn it up !! ꒱
+<h1 align="center">꒰ turn it up !! ꒱</h1>
+<div align="center">
 
 <img width="597" height="47" alt="image" src="https://github.com/user-attachments/assets/6965f2f0-232b-48d3-a7ea-b42bd3e3c36e" />
 
@@ -8,3 +9,5 @@
 
 -- i am __lillievanilli__ on discord . (｡･⩊･｡) ♡  
 u may find me on bogcom or crc !! i do play comp , unfortunately
+
+</div>
