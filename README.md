@@ -8,7 +8,7 @@
 
 ### -- i am <ins>lillievanilli</ins> on discord . (｡･⩊･｡) ♡  
 u may find me on bogcom or crc !! i do play comp , unfortunately ;;  
-p.s. i'm a minor whoops
+!? p.s. i'm a minor whoops
 
 <img width="597" height="47" alt="image" src="https://github.com/user-attachments/assets/fced2cc8-7ba8-443b-b764-5475085d4df3" />
 
