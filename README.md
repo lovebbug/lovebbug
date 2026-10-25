@@ -19,9 +19,3 @@ and since there's so much space here
 
 
 </div>
-
-
----
-my best mvp ever btw . (/joke)  
-
-<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/0b809315-349e-4a48-bdbd-e134d328507f" />
