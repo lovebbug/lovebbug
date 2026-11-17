@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=lovebbug&color=A0C964&style=plastic&label=sillies+!!)
+![](https://komarev.com/ghpvc/?username=lovebbug&color=A0C964&style=plastic&abbreviated=true&label=sillies+!!)
   
 <img width="597" height="47" alt="image" src="https://github.com/user-attachments/assets/6965f2f0-232b-48d3-a7ea-b42bd3e3c36e" />
 
